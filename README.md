@@ -15,3 +15,6 @@ Random bilde
 
 Tad nu tā. Stāsts tuvojas beigām, lai man un visiem šajā kursā izdodas iegūt un apgūt to, kas visvairāk vajadzīgs.
 Paldies par uzmanību! 
+Tikko izlasīju, ka minimālais vārdu skaits ir 200, tātad patiešām jābūt diviem simtiem. 
+Vēl kaut kas par mani. Man patīk spēlēt galda spēles. Pēdējā laikā esam iecienījuši 3 spēles - Carcassone, kas ir par pilsētu un ceļu būvēšanu. Port Royal, kur spēles sastāvā ir tikai kārtis, kas var izmantot kā iespēju kārtis, vai kā monētas. Un Ticket to ride - spēle, kur jābūvē vilcienu ceļi dažādās krāsās uz dažādām pilsētām. 
+
